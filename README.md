@@ -1,6 +1,6 @@
 # random
 
-Hello
+Hi
 
 vibing
 
