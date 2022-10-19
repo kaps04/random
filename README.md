@@ -9,4 +9,3 @@ Bye
 see you 
 
 NARUTO
- welcome
