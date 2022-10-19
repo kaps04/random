@@ -9,6 +9,3 @@ Bye
 see you 
 
 NARUTO
-
-
-afd
