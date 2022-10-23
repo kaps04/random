@@ -6,6 +6,6 @@ vibing
 
 Bye
 
-see you 
+BLUE LOCK
 
 NARUTO
